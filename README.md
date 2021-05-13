@@ -7,3 +7,15 @@
 ## Hello Everyone!!! 
 ## This is fun :)
 # Hi Everyone! - Luiggi
+   --.           / |
+   \   \        /  |
+    \   `\     /   /
+      \   \   |   /
+       `\  \  | /'
+         _\ \/ /
+       '      <
+     / (@)     \
+    (           |
+     ` .       /
+        | ____/
+       (V) ===
