@@ -7,15 +7,5 @@
 ## Hello Everyone!!! 
 ## This is fun :)
 # Hi Everyone! - Luiggi
-   --.           / |
-   \   \        /  |
-    \   `\     /   /
-      \   \   |   /
-       `\  \  | /'
-         _\ \/ /
-       '      <
-     / (@)     \
-    (           |
-     ` .       /
-        | ____/
-       (V) ===
+
+I don't like bunnies
